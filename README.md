@@ -13,6 +13,7 @@ so i guess i would better learn then become a victim.
 
 - 📫 How to reach me ...https://www.facebook.com/CORSCOIN/
                         https://corsocoin.io
+                        t.me/CorsoCoin
 
 I became a Judo instructor at 17,5 now I'm trying to develop at 38....
 <!---
