@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TopDogCORS ( you'll end up discovering my real name quiqly )
+- 👋 Hi, I’m @TopDog_CorsoCoin ( you'll end up discovering my real name quiqly )
 - 👀 I’m interested in ...making money, having fun, saving the planet, getting Bill Gates out of the farming bussines, vaccines as well, 
                            getting FAUCI executed for Genocide ( along with Bill Gates and many others )
                            DID I MENTION GETTING THE ROSTCHILDS OUT OF THE BANKING BUSSINESS ?
